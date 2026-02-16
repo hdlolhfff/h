@@ -1,10 +1,10 @@
 # E
 
  
- 1.21.11 java.zip : https://mega.nz/file/T3pgWBZS#PHK0r3PKrxAEy0nt6IBu7xz4akdpGw3kJu9FYqTq3do
+ 1.21.11 java.zip : https://mega.nz/file/66QzSZwB#ZB9gkIlh9k5oj0bKghboLAkWtPC3V9A5Kk1x-6eZ198
  
  
- 1.21.11.zip for cracked: https://mega.nz/file/Wioy3AoR#7ZQp20o8GArd2GceysCbbia_PHA9AlwmQG5n-294kz0
+ 1.21.11.zip for cracked: https://mega.nz/file/nzp1QA4I#QqRCqkrMrFu-tuGFZmnb9l-GOSZu6HJQYSKXtqOxxWI
  
  
  GET IF NOT HAVE: https://github.com/Diegiwg/PrismLauncher-Cracked/releases/tag/10.0.2
