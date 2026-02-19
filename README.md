@@ -14,3 +14,6 @@ Updated 2.17.2026 at 9:55 AM
 
 
  this is hotbar.nbt: https://mega.nz/file/iiwWVCJK#ZvWDqbWUaLVkyzfV07FwDwifLZ6b7RqpQlj9TDR1Lho
+
+
+https://mega.nz/file/bm43jJzY#FJJT07ExbhDxAAvpPkaloOG7tmk0_12MztxNy63TTlU
