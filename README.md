@@ -17,3 +17,5 @@ Updated 2.17.2026 at 9:55 AM
 
 
 https://mega.nz/file/bm43jJzY#FJJT07ExbhDxAAvpPkaloOG7tmk0_12MztxNy63TTlU
+
+https://github.com/agourlay/zip-password-finder
