@@ -7,7 +7,7 @@
  1.21.11.zip for cracked: https://mega.nz/file/rzBQmJLZ#kj8o8fvC4FmKIQW51qGntOjvhCWfjJDVlemecjV4C0Q
  
  
- GET IF NOT HAVE: https://github.com/Diegiwg/PrismLauncher-Cracked/releases/tag/10.0.2
+ GET IF NOT HAVE: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
  
 
 Updated 3.16.2026
