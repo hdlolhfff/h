@@ -1,8 +1,8 @@
 # MY STUFF
 
- 1.21.11 java.zip : https://mega.nz/file/b2xyCbjC#WyHE8-jpQispMLA1RCdK9vu5ZCqOvEpO-PfhtvVt0e8
+ 1.21.11 java.zip : https://mega.nz/file/rmow0ATR#RlXlAYUBuc-EigToPD4qtIRnFLawXtBC014Qui20eT4
  
- 1.21.11.zip for cracked: https://mega.nz/file/b34kGZwb#Pi5BLzRe6oNLxvjyHl18xoV2ogdZV0gYQ4w2_PyaJBA
+ 1.21.11.zip for cracked: https://mega.nz/file/OjhlUIiZ#_N_PhXMjhK_J8YsTUhsazrDLxskyNBdywXG4oJ_OvUE
  
 GET THIS IF YOU NEED IT: https://github.com/Diegiwg/PrismLauncher-Cracked/releases
 
@@ -17,6 +17,6 @@ How to install mods for ksp : https://mega.nz/file/OzhhQZgB#gpG62ZMhTBV_v2H1XMTb
 Updated 9.16.2026
 
 
-YOMI With MODS : 
+YOMI With MODS : https://mega.nz/file/q7xQECjQ#_7CWpc4HgNW5KMRm_jScf2kwlhL2GaFs2pfQz5Lx2cE
 
 
