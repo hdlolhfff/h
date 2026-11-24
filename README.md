@@ -9,3 +9,7 @@ GET THIS IF YOU NEED IT: https://github.com/Diegiwg/PrismLauncher-Cracked/releas
 YOMI With MODS : https://mega.nz/file/q7xQECjQ#_7CWpc4HgNW5KMRm_jScf2kwlhL2GaFs2pfQz5Lx2cE
 
 Updated 10.4.2026
+
+
+
+https://pastebin.com/u9XLhkyu
